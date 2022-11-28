@@ -13,4 +13,36 @@ Most of the tourist countries provide digital nomad visa.
  * Brazil Digital Nomad Visa
  * Colombia Digital Nomad Visa
  * Costa Rica Digital Nomad Visa
- * 
+ * Mexico Digital Nomad Visa
+ * Cape Verde Digital Nomad Visa
+ * Mauritius Digital Nomad Visa
+ * Seychelles Digital Nomad Visa
+ * [Dubai Remote Work Visa](https://github.com/binumathew/remote-work-visa/blob/main/dubai-remote-work-visa.md)
+ * Australia Working Holiday visa
+ * Taiwan Employment Gold Card
+ * Sri Lanka Digital Nomad Visa
+ * Anguilla Digital Nomad Visa
+ * Antigua and Barbuda Nomad Digital Residence Visa Programme
+ * Aruba One Happy Working visa
+ * Bahamas Extended Access Travel Stay
+ * Barbados welcome stamp visa
+ * Bermuda Digital Nomad Visa
+ * Global Citizen Concierge Program - The Cayman Islands
+ * @Home in Curaçao Visa
+ * Work in Nature (WIN) extended-stay visa - Dominica
+ * Jamaica Remote work visa
+ * Montserrat Digital Nomad Visa
+ * Croatia Digital Nomad Visa
+ * The Czech Republic Digital Nomad Visa
+ * Estonia Remote Work Visa
+ * Georgia Digital Nomad Visa
+ * German Freelance "Freiberufler" Visa
+ * Greece digital nomad visa
+ * Iceland digital nomad visa
+ * Malta digital nomad visa
+ * Norway digital nomad visa
+ * Portugal digital nomad visa
+ * Spain digital nomad visa'
+ * Thailand digital nomad visa
+ * Cyprus digital nomad visa
+ * Mexico digital nomad visa
