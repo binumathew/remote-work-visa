@@ -46,4 +46,4 @@ Most of the tourist countries provide digital nomad visa.
  * Thailand digital nomad visa
  * Cyprus digital nomad visa
  * Mexico digital nomad visa
- * [Vietnam Digital Nomad Visa] (https://github.com/binumathew/remote-work-visa/blob/main/vietnam-remote-work-visa)
+ * [Vietnam Digital Nomad Visa](https://github.com/binumathew/remote-work-visa/blob/main/vietnam-remote-work-visa)
