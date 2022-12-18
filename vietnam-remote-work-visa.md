@@ -1,9 +1,6 @@
 Let's talk about a country that ranks eighth among the most desired destination for digital nomads, Vietnam. Let's talk about Vietnam, the digital nomad visa for Vietnam and its requirements before backpacking. I have made sure that you get a plethora of information you need to get before you start your journey to Vietnam. 
-
 Digital nomads have become a very deep-rooted community around the world. Travelling has become a part of life for many it's a drug for them as it shoots up the adrenal level way too high. Travelling as a digital nomad gives freedom in many ways to work at your pace, no boring chair jobs, no one to no one to eat your head on deadlines and targets.
-
 The communist paradise has become a trendy destination for a few years. The tropical climate and the lower cost of living are the ultimate attraction for many digital nomads to choose Vietnam as their dream destination.
-
 Just ten years ago, Vietnam welcomed visitors from around the world. Since then, this location has progressively gained appeal among digital nomads, so it's not surprising that many wish to stay in Vietnam for an extended period. However, it takes more work to achieve that.
 
 You can read more about [Vietnam Remote Work Visa](https://oyestartups.com/visa/remote-work-visa/remote-work-visa-vietnam) at [OyeStartups](https://oyestartups.com/)
